@@ -6,6 +6,8 @@ time dialation is possible based on massive effects of gravity shifting time and
 considering from observation of a billionith of a second time dialation from the massive weight of the pyramids, resulting in time slowing by 1/1,000,000,000 1ns an increased mass of 10^27 tons almost the weight of the sun time would slow by 15 minutes,
 thinking about this on a deeper level,
 
+https://newsandstory.com/story/281128155014201752368/Time-runs-slow-near-the-Pyramids-in-Giza-/
+
 at an increased mass, almost 1,000 times the sun or 10,000 times the weight of the sun time would slow down by days or even up to a week, (in effect risking the earth from losing its orbital track around the sun)
 
 observers around the massive object uneffected by gravity would resume at a normal rate,
