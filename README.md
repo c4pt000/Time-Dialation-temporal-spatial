@@ -1,6 +1,6 @@
 # Time-Dialation-temporal-spatial
 
-considering time-space based on the model of gravity from the standard model of gravity, in response to many articles including reading the recent ron mallett cnn mention,
+considering time-space based on the model of gravity from the standard model of gravity, in response to many articles including reading the recent ron mallett cnn mention, and paul sutter astrophysicist
 
 time dialation is possible based on massive effects of gravity shifting time and space,
 considering from observation of a billionith of a second time dialation from the massive weight of the pyramids, resulting in time slowing by 1/1,000,000,000 1ns an increased mass of 10^27 tons almost the weight of the sun time would slow by 15 minutes,
