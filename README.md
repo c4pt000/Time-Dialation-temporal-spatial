@@ -8,6 +8,8 @@ thinking about this on a deeper level,
 
 https://newsandstory.com/story/281128155014201752368/Time-runs-slow-near-the-Pyramids-in-Giza-/
 
+https://www.quora.com/Why-does-time-slow-down-near-pyramids
+
 at an increased mass, almost 1,000 times the sun or 10,000 times the weight of the sun time would slow down by days or even up to a week, (in effect risking the earth from losing its orbital track around the sun)
 
 observers around the massive object uneffected by gravity would resume at a normal rate,
