@@ -37,13 +37,3 @@ the horses all run the same set of events, (but only a fraction of degree change
 for each iteration consisting of billions of repeating loops
 
 
-David H Weinberg
-01/03/2020 6:53am EST
-
-
-
-
-https://www.binance.com/en/buy-sell-crypto/channel-list/buy/USD/BTC/10
-
-
-on average its $5.00 USD to transmit bitcoin on most websites dealing with bitcoin 
