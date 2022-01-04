@@ -1,5 +1,8 @@
 # Time-Dialation-temporal-spatial
 
+# 01-04-2022
+# https://www.sciencenews.org/article/atomic-clock-general-relativity-time-warp-millimeter-physics
+
 considering time-space based on the model of gravity from the standard model of gravity, in response to many articles including reading the recent ron mallett cnn mention, and paul sutter astrophysicist
 
 time dialation is possible based on massive effects of gravity shifting time and space,
